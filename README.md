@@ -21,7 +21,7 @@
 更多介绍查看：https://gudong.name/2019/12/03/about-xPic.html
 
 ## 下载
-* [酷安市场](https://www.coolapk.com/apk/name.gudong.pic)
+* [ http://fir.gudong.site/da9q ]( http://fir.gudong.site/da9q )
 
 ## 更新日志
 
